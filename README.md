@@ -1,0 +1,1 @@
+Aby otworzyć zamek nalezy podać kod: 24680
